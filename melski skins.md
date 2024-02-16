@@ -3,9 +3,6 @@
 * [**xootynator Discord**](https://discord.gg/CardboardBox)
 * [**xootynator Twitch**](https://www.twitch.tv/xootynator)
 
-## [ xootynCursors Folder](https://drive.google.com/file/d/1ABAef9r-GPWiyzLbFrR-MhzxiePFwSh8/view?usp=sharing)
-This folder only has cursors that xooty likes to use, add them to whatever skins you'd like!
-
 ## [Mellynator ( sun )](https://drive.google.com/file/d/12kp4GnPSCJ3aZ2SnxFOCLd6TDvr4VPjW/view?usp=sharing)
 ![](https://i.imgur.com/pmFEKZ0.jpeg)
 
