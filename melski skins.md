@@ -6,7 +6,7 @@
 ## [ xootynCursors Folder](https://drive.google.com/file/d/1ABAef9r-GPWiyzLbFrR-MhzxiePFwSh8/view?usp=sharing)
 This folder only has cursors that xooty likes to use, add them to whatever skins you'd like!
 
-## [Mellynator ( sun )(https://drive.google.com/file/d/1rFSY-1ng9EUB4I8yZH4zw6rkSAp4GOln/view?usp=sharing)
+## [Mellynator ( sun )](https://drive.google.com/file/d/1rFSY-1ng9EUB4I8yZH4zw6rkSAp4GOln/view?usp=sharing)
 short description here
 
 ![](https://i.imgur.com/pmFEKZ0.jpeg)
