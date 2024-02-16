@@ -24,5 +24,5 @@ short description here
 ![](https://i.imgur.com/aaEPZAp.jpeg)
 
 ## [Sytho Alfie 1.25](https://drive.google.com/drive/folders/1TD8NRKw795CHtYt74w26uu37-53rv7YZ)
-![](https://i.imgur.com/1KngQXV.jpeg
+![](https://i.imgur.com/1KngQXV.jpeg)
 
