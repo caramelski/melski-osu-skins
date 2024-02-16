@@ -7,8 +7,6 @@
 This folder only has cursors that xooty likes to use, add them to whatever skins you'd like!
 
 ## [Mellynator ( sun )](https://drive.google.com/file/d/12kp4GnPSCJ3aZ2SnxFOCLd6TDvr4VPjW/view?usp=sharing)
-short description here
-
 ![](https://i.imgur.com/pmFEKZ0.jpeg)
 
 ## [Mellynator ( bluesun )](https://drive.google.com/file/d/1GnkGAsqv2S8O5A78OkxRrqZLemqHMMe6/view?usp=sharing)
