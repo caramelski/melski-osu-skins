@@ -3,11 +3,12 @@
 * [**xootynator Discord**](https://discord.gg/CardboardBox)
 * [**xootynator Twitch**](https://www.twitch.tv/xootynator)
 
-:smirk: :nail_care: *girlboss time*
 ## [ xootynCursors Folder](https://drive.google.com/file/d/1ABAef9r-GPWiyzLbFrR-MhzxiePFwSh8/view?usp=sharing)
 This folder only has cursors that xooty likes to use, add them to whatever skins you'd like!
 
 ## [『BlooMoon Re;Done』 - ft. Xootynator Main Skin ](https://drive.google.com/file/d/1rFSY-1ng9EUB4I8yZH4zw6rkSAp4GOln/view?usp=sharing)
+short description here
+
 ![](https://i.imgur.com/RNIGsG3.jpg)
 
 ## [『BlooMoon Re;Done』 - ft. Xootynator Long Purple Trail ](https://drive.google.com/file/d/1Js4rjVjmmstL23nv_Og-FVWbBa2BZKD5/view?usp=sharing)
