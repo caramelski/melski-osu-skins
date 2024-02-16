@@ -1,9 +1,6 @@
-# * yall been asking for this LOL *
+# * yall been asking for this lol *
 
 This is a list of the skins I like to use the most
-
-* [**xootynator Discord**](https://discord.gg/CardboardBox)
-* [**xootynator Twitch**](https://www.twitch.tv/xootynator)
 
 ## [Mellynator ( sun )](https://drive.google.com/file/d/12kp4GnPSCJ3aZ2SnxFOCLd6TDvr4VPjW/view?usp=sharing)
 ![](https://i.imgur.com/pmFEKZ0.jpeg)
