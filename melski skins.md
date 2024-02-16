@@ -1,4 +1,3 @@
-@ -0,0 +1,58 @@
 # * I will try to keep this updated. *
 
 * [**xootynator Discord**](https://discord.gg/CardboardBox)
